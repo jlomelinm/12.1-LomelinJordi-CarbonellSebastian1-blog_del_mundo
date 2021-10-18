@@ -1,0 +1,1 @@
+# 12.1-Lomel-nJordi-apellidoPersona1-blog_del_mundo
